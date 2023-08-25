@@ -1,4 +1,4 @@
-- Hi, I’m @Ruskhar
+- Hi, I’m @Ruskhar .
 - 👀 
 - 🌱 
 - 💞️ 
